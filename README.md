@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Larbhen Felix A. Adea
+- 👋 Hi, I’m Larbhen Felix A. Adea
 - 😎 I’m 20 years old
 - 🌱 I’m born on San Pablo City
 - 💞️ I only have one sibling
